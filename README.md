@@ -1,4 +1,3 @@
-![Banner](A_digital_graphic_design_banner_displays_"MATHEUS_.png)
 
 # 👋 Fala aí, eu sou o Matheus Henrique Vilar Martins  
 
